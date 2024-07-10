@@ -1,2 +1,2 @@
-# Build Your Branch
-How I prepared for my career path
+# Build Your Brand
+How I prepared through my career path :)
